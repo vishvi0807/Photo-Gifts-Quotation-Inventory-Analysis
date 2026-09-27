@@ -170,3 +170,9 @@ Potential enhancements include:
 ---
 
 **Tool:** Microsoft Excel | **Focus:** Quotation Automation, Pricing Analysis & Inventory Monitoring
+
+
+## Open to work and freelance projects
+
+Email: vishvi0807@gmail.com
+
